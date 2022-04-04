@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Tobimain
+- 👀 I’m interested in Sports and Video Games
+- 🌱 I’m currently learning German
